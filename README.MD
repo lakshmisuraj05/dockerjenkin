@@ -39,6 +39,9 @@ xn bxz zx
 nc vnxc vn vc zxc
 cm cxzm xcmz zxm xc
 vc,x vmzx ,z
+asdjkjkasjkjfaa
+afafafafakfa
+nakgnkgnkgkn
 zxm zxm z,
 ndcasncamna
 dhhasdhsa
