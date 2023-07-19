@@ -42,13 +42,4 @@ vc,x vmzx ,z
 zxm zxm z,
 ndcasncamna
 dhhasdhsa
-ashhdvashdsah
-asjdasdasdaa
-sddajabdjadaja
-asdbasjadjadajd
-asjdbasjdasjdahdj
-asdasdkadadaddad
-ajsdasjdasd
-assjdabdjasdba
-aksndasksakdd
-askdaksdksadk
+ashhdvashdsa
